@@ -1,4 +1,8 @@
-# corridor_lesson
+# BUI Audio Workshop January 2026
 
-https://drive.google.com/drive/folders/1v1L9W3fstxpQed-YN8Zfsm9bViWedaW-?usp=sharing
-<img width="280" height="271" alt="image" src="https://github.com/user-attachments/assets/27a74cf3-655a-40fa-8001-efbc3b65c3a2" />
+
+## new drive link
+
+https://drive.google.com/file/d/1V0fsIl50btxXWS3TTKVPXnwTxeZptslG/view?usp=sharing
+
+
